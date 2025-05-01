@@ -1,2 +1,3 @@
-# JDD717.github.io
-Portfolio
+Jaydee Dinh
+Jaydeedinh@csu.fullerton.edu
+@JDD717
